@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data
 - 🌱 I’m currently learning Data Analysis
 - 💞️ I’m looking to collaborate on Live Projects
-- 📫 How to reach me ...
+- 📫 How to reach me oghenefejirojoan9@gmail.com
 - 😄 Pronouns: SHE
 - ⚡ Fun fact: Enjoys Researching
 
