@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Live Projects
 - 📫 How to reach me oghenefejirojoan9@gmail.com
 - 😄 Pronouns: SHE
-- ⚡ Fun fact: Enjoys Researching
+- ⚡ Fun fact: Enjoys Research
 
 <!---
 OghreJoan/OghreJoan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
